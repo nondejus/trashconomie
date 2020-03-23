@@ -1,0 +1,2 @@
+# trashconomie
+institutionele gesubsidieerde kunsten
